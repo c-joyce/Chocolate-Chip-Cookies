@@ -27,7 +27,7 @@ Awesome Chocolate Chip Cookie recipe from [Martha Stewart]("http://www.marthaste
 - 2 cups (about 12 ounces) semisweet and/or milk chocolate chips
 - Walnuts
 - Lots of Gluten
-- dog hair
+- cat hair
 
 
 
